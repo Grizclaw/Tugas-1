@@ -1,2 +1,2 @@
 # Tugas-1
-Tugas 1 Kelompk LSP
+Tugas 1 Kelompok LSP
